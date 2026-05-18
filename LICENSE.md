@@ -1,4 +1,4 @@
-# 
+# ultimate GIMP for PC plugins is the best GIMP for PC plugins with automated-actions and collaboration-tools. Safe, reliable, and optimized for maximum performance.
 
 
 
